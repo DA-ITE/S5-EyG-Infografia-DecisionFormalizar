@@ -1,0 +1,1 @@
+# S5-EyG-Infografia-DecisionFormalizar
